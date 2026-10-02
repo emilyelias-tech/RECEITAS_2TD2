@@ -1,0 +1,7 @@
+- fubá
+- oleo
+- farinha comum
+- sal
+- açucar
+- fermento
+- água
